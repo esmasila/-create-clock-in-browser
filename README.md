@@ -1,0 +1,1 @@
+Tarayıcıda saat kısaca.
